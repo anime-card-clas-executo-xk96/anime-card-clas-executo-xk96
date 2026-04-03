@@ -1,4 +1,4 @@
-
+cstm Scripts for knockout - auto-win and inf-health is the ultimate solution for knockout players! Our scripts provide auto-win and inf-health, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your knockout experience today!
 
 
 ---
